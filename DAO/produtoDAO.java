@@ -1,1 +1,0 @@
-#detalhes do produto
